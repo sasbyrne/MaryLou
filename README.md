@@ -1,2 +1,2 @@
-# MaryLou
-Sean is here too
+# MaryLou & Sean
+are helping me with my presentation
